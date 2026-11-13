@@ -1,4 +1,4 @@
-# Miguel Miguel Miguel Miguel Phonk 🗣️🗣️
+
 
 
 # NASA Space Apps 2026 — Junior Astronaut Mission Trainer
